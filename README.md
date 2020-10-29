@@ -8,10 +8,3 @@
 ## RECOMMENDED 📒
 Don't send mail more than 50 per time 
 
-## Contact Me ☎
-
-#### Instagram: https://www.instagram.com/dx4iot/
-
-#### LinkedIn: https://www.linkedin.com/in/dx4iot
-
-#### Facebook: https://www.facebook.com/dx4iot/
